@@ -6,6 +6,6 @@ I’m also interested in digital marketing and graphic design, and I’m working
 
 Right now, I’m focused on learning, practicing, and working on small projects to grow my experience.
 
-### **Lets Connect!**
+**Lets Connect!**
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/sonia-zaryab-605378388/)
