@@ -1,6 +1,6 @@
 ### Hi there! <img src="https://media.tenor.com/4kIHjPaMiDoAAAAj/the-blobs-live-on-waving.gif" width="20">
 
-I'm Sonia, a first-year cybersecurity student, currently building my skills and learning more about the field.
+I'm Sonia, a first year cybersecurity student, currently building my skills and learning more about the field.
 
 I’m also interested in digital marketing and graphic design, and I’m working on improving my creativity alongside my technical knowledge.
 
