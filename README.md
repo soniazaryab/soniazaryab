@@ -8,4 +8,4 @@ Right now, I’m focused on learning, practicing, and working on small projects 
 
 **Lets Connect!**
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/sonia-zaryab-605378388/)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/soniazaryab/)
